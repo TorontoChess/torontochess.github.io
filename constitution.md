@@ -15,7 +15,7 @@
 1.4 This Constitution includes 10 Articles. It was adopted in March 2011 by the GTCL Executive and it was subsequently ratified by the 2011 GTCL AGM. The previous version was approved at the April 2007 AGM and published on the GTCL website.
 
 
-**Article 2****.** **The Objectives**
+**Article 2. The Objectives**
 
 
 The Objectives of GTCL shall be:
